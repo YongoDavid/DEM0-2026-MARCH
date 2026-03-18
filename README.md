@@ -33,3 +33,6 @@ New week, new day same grind.
 
 17 MAR
 New week, new day ssame grind.
+
+18 MAR
+New day, lunched my new machine(M4).
