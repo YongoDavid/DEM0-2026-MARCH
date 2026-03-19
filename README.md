@@ -39,3 +39,4 @@ New day, lunched my new machine(M4).
 Im backkkk.
 
 19 MAR
+New day, same grind!
