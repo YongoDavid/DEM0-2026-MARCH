@@ -60,3 +60,4 @@ New day, same grind.
 New week, same grind.
 
 31 MAR
+The end of Q1, amazing quater.  
